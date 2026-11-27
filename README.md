@@ -1,4 +1,4 @@
-## Hi there 👋
+## ^_^
 
 <!--
 **kkeshanii/kkeshanii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+--> ![Image Alt](https://raw.githubusercontent.com/kkeshanii/kkeshanii/refs/heads/main/Loona%20banner.jpe)
