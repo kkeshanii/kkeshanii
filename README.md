@@ -15,4 +15,3 @@
 </p>
                                        
 <p align="center"> <img width="736" height="436" alt="image" src="https://github.com/user-attachments/assets/a7600fd5-bc51-4d85-af0b-a59be65cc263" />
-<p align="center"> <img width="736" height="436" alt="image" src=https://github.com/kkeshanii/kkeshanii/blob/b29ee91c3eaa6b8e93b224f06e89ae31a749586f/78fb97a1d66aaee34379aa3b24df5f14" />
