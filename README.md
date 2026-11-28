@@ -1,4 +1,6 @@
 <img width="2649" height="1064" alt="image" src="https://github.com/user-attachments/assets/9ec6dbbc-7392-476c-abb2-fe1b051ef1dd" />
+  <img src="https://pixelsafari.neocities.org/dividers/more/blood.png" width="700">
+</p>
 <p align="center">
       
       hi!!! My name sasha / kesha. 15 yo. 
