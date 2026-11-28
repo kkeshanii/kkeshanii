@@ -16,5 +16,13 @@
   <a href="https://github.com/kittinan/spotify-github-profile">
   </a>
 </p>
+
+
+‎‎<p align="center">
+   <img src="https://file.garden/aSJbsl0SJQxLqVG5/tumblr_75df21f8ddf93d368874d052cd8dcd58_3630be60_640.gif" width="500"/>
+<p align="center">
+</p>
+
+
                                        
 <p align="center"> <img width="736" height="436" alt="image" src="https://github.com/user-attachments/assets/a7600fd5-bc51-4d85-af0b-a59be65cc263" />
