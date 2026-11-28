@@ -7,6 +7,7 @@
     I really want to find friends. I would be very happy to get to know someone!! I’m looking for friends—ideally from the Hannibal fandom :_
                        But I also want to find friends who are into Supernatural, Hannibal, and Good Omens.
 
+<img width="480" height="25" alt="image" src="https://github.com/user-attachments/assets/09d6d4ae-abe8-4576-853c-bf907482f5e3" />
 
                        
 <p align="center">  <img width="525" height="475" alt="image" src="https://github.com/user-attachments/assets/dd0e9fe8-f0be-4140-b693-47b76aa2d6a4" />
