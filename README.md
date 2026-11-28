@@ -1,3 +1,4 @@
+<sic align="center"> <img src="https://file.garden/aM35nctJ4WLiRF2O/Untitled187_20261028191243.png" />
 <img width="2649" height="1064" alt="image" src="https://github.com/user-attachments/assets/9ec6dbbc-7392-476c-abb2-fe1b051ef1dd" />
   <img src="https://pixelsafari.neocities.org/dividers/more/blood.png" width="700">
 </p>
