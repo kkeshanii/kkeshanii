@@ -1,6 +1,5 @@
 <img width="2649" height="1064" alt="image" src="https://github.com/user-attachments/assets/9ec6dbbc-7392-476c-abb2-fe1b051ef1dd" />
-      <img src="https://komarev.com/ghpvc/?username=rathomies&color=red&style=flat-square&label=github+victims">
-</p>
+<p align="center">
       
       hi!!! My name sasha / kesha. 15 yo. 
     I really want to find friends. I would be very happy to get to know someone!! I’m looking for friends—ideally from the Hannibal fandom :_
